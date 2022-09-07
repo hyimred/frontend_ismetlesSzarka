@@ -1,5 +1,6 @@
-# [Név]
+# [Csák Patrik]
 
+ikszde xd
 
 ## Hogyan kezdj neki?
 
